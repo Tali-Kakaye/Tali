@@ -4,4 +4,5 @@
 - J'aimerais tisser des liens avec des personnes plus expertes partout dans le monde dans le domaine pour m'aider à me développer également 
 
 - Mon email : talikakaye806@gmail.com
--
+- 
+- Ce compte me servira à apprendre et à développer mes projets pédagogiques avec SAYNA 
